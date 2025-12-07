@@ -1,0 +1,69 @@
+# LE SSERAFIM – Pearlies (My oyster is the world)
+
+> **歌詞登録ステータス：同期歌詞あり**
+
+```lrc
+[00:08.72] What is real? 내게 진짜란 것이
+[00:10.95] 답 없이 울리는 메아리
+[00:13.09] 외쳐 난 또 수백 번씩
+[00:15.29] I'ma be real, I think you're all I need
+[00:17.49] What is real? 너무 확실했었지
+[00:19.63] 너의 눈빛 목소리와 온기
+[00:21.82] 행복했어 이건 내 진심
+[00:23.95] Me and my girlies, gettin' our pearlies
+[00:26.22] 무너져버린 그때 나의 roof (Uh)
+[00:28.33] 거짓말처럼 사라진 내 전부 (Yeah)
+[00:30.55] Tell me what is real, tell me what is true (Mm-mm)
+[00:32.68] 제발 그쳐줘 사월의 폭풍
+[00:35.55] 흔들린 시야 속, 선명해졌어 너란 지평선 (지평선)
+[00:39.93] 그때였지 약속, 널 오래 지키고 싶어
+[00:43.09] I'm incomplete (Without you now, 'out you now)
+[00:46.67] 반쪽짜리 (Just hear me out, hear me out; ooh-woah, oh)
+[00:50.91] 나의 가칠 (Yeah-eh)
+[00:55.50] 알아봐 주면서 넌
+[00:57.52] 날 구해준 거 알아? (No)
+[01:01.07] What is real? 내게 진짜란 것이
+[01:03.23] 답 없이 울리는 메아리
+[01:05.44] 외쳐 난 또 수백 번씩
+[01:07.60] I'ma be real, I think you're all I need
+[01:09.83] What is real? 너무 확실했었지
+[01:11.97] 너의 눈빛 목소리와 온기
+[01:14.18] 행복했어 이건 내 진심
+[01:16.31] Me and my girlies, gettin' our pearlies
+[01:18.53] You are the light
+[01:22.63] 저 끝까지 guide (Guide)
+[01:26.97] 더 빛날 거야 (더 빛날 거야, baby)
+[01:31.31] The pearls that are mine (Are mine)
+[01:35.98] 한 치 앞이 안 보여도 up tempo (Yeah)
+[01:38.16] 살아남도록 잡았어 my mental (Uh-huh)
+[01:40.37] 어둠의 끝이 오는 tunnel
+[01:42.56] 변치않아 내 삶의 척도 (Ah-ah-ah)
+[01:44.70] Hurt like a bitch but baby, we're alive (Yeah-eh)
+[01:46.89] Rocks on my neck and they're one of a kind (Yeah-eh)
+[01:49.08] 다이아보다 비싼 pearls in my mind (Uh), yeah-eh-eh
+[01:52.94] I'm incomplete (Without you now, 'out you now)
+[01:56.51] 반쪽짜리 (Just hear me out, hear me out)
+[02:00.73] 나의 가칠 (Yeah-eh)
+[02:05.27] 알아봐 주면서 넌
+[02:07.34] 날 구해준 거 알아? (Uh)
+[02:10.87] What is real? 내게 진짜란 것이
+[02:13.12] 답 없이 울리는 메아리
+[02:15.24] 외쳐 난 또 수백 번씩
+[02:17.40] I'ma be real, I think you're all I need
+[02:19.65] What is real? 너무 확실했었지
+[02:21.76] 너의 눈빛 목소리와 온기
+[02:23.98] 행복했어 이건 내 진심
+[02:26.15] Me and my girlies, gettin' our pearlies
+[02:28.39] You are the light
+[02:32.47] 저 끝까지 guide (Guide)
+[02:36.78] 더 빛날 거야 (더 빛날 거야, baby)
+[02:41.20] The pearls that are mine (Are mine)
+[02:45.77] 시간이 지나 이젠 알겠어
+[02:47.98] 진주는 갖는 것이 아니었어
+[02:50.17] 내 안에 쌓이는 지혜 같은 것
+[02:52.37] I'ma be real, I think you're all I need
+[02:54.59] 어떤 파도가 이젠 밀려와도
+[02:56.80] 잊지 말아 줘 우린 바다란 걸
+[02:58.93] 진짜였어 이 모든 순간이
+[03:01.08] Me and my girlies, gettin' our pearlies
+```
